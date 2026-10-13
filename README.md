@@ -1,4 +1,4 @@
-# Política de privacidad de Control Finanzas Pro
+# Política de privacidad de Aparta
 
 Página pública: https://ferel-04.github.io/control-finanzas-privacidad/
 
